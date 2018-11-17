@@ -1,0 +1,2 @@
+# privacy
+CalcCalc Privacy Policy
